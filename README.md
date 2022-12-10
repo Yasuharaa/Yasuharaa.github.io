@@ -1,1 +1,0 @@
-# Yasuharaa.github.io
